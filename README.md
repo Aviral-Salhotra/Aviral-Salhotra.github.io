@@ -1,1 +1,1 @@
-# aviralsalhotra.github.io
+# aviral-salhotra.github.io
